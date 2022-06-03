@@ -1,0 +1,3 @@
+- I'm a Reseller brand 
+- I make profit
+- 
